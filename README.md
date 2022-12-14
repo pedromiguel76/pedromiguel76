@@ -1,6 +1,6 @@
 - 👋 oi eu sou @pedromiguel76
 - 👀  predento ter mais aprendizado 
-- 🌱 materia gerais da escola.
+- 🌱 estudo materia gerais da escola.
 - 💞️ estou tentando colaborar com meu futuro.
 - 📫 chama no email pepomigue764@gmail.com
 
